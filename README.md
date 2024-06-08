@@ -1,6 +1,6 @@
 **Bansi Mangukiya**
 
-Surat, Gujarat, India | +91 9099716506 | bmmangukiya01@gmail.com | [LinkedIn](https://linkedin.com/in/bansimangukiya) | [GitHub](https://github.com/bmmangukiya)
+Surat, Gujarat, India | +91 9099716506 | bmmangukiya01@gmail.com | [LinkedIn](https://linkedin.com/in/bansimangukiya)
 
 ---
 
